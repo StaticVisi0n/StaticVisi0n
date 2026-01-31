@@ -1,7 +1,7 @@
 
 
 
-<p align="center"> V Comfort Characters V </p>
+<p align="center"> V Comfort Characters PLEASE INT V </p>
 <img width="1272" height="157" alt="2025_11_16_10r_Kleki" src="https://github.com/user-attachments/assets/bcee55f0-6e3c-40bf-8f96-d95b727c0953"/>
 
 <img width="2048" height="573" alt="2025_11_11_0rp_Kleki" src="https://github.com/user-attachments/assets/2de5769f-34ab-4c1b-a8fc-5b7b62ef2f5d"/>
